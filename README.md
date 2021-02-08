@@ -5,4 +5,3 @@
 - 🗓️ Hobbies: Personal Projects and Stock Trading
 - 📫 How to reach me: zainy0012@gmail.com
 - ⚡ : My favorite quote: "I stay for dessert, because this is Bushido, there's a code; you sign on to something, you finish the job." - LB
--->
