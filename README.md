@@ -6,10 +6,10 @@
 - 📫 How to reach me: zainy0012@gmail.com
 - ⚡ My favorite movie line:
 
-    "Me, I want whats coming to me." (Tony Montana)
+    - "Me, I want whats coming to me." (Tony Montana)
 
-     "Oh yeah, what's that?" (Chico)
+    - "Oh yeah, what's that?" (Chico)
      
-     "The world, Chico... and everything in it." (Tony Montana) 
+    - "The world, Chico... and everything in it." (Tony Montana) 
      
-     // Scarface (1984) 🌎
+     - // Scarface (1984) 🌎
